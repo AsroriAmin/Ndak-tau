@@ -1,2 +1,2 @@
 # amin-ganteng
-Ndak tau juga🗿
+Ganteng
