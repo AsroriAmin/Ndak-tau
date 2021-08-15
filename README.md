@@ -1,2 +1,2 @@
-# Ndak-tau
+# amin-ganteng
 Ndak tau juga🗿
